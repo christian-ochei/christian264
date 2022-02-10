@@ -1,4 +1,4 @@
-## Am Christian Ochei 🎹👨‍💻🏆
+## Christian Ochei
 ### Hubylist { Programmer, Machine learning Expert, Reasercher } and overall problem solver
 
 
